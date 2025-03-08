@@ -1,2 +1,2 @@
 # my-bub
-this is for my babe
+Building cool stuff for my future babe ❤️
